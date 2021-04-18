@@ -4,6 +4,9 @@ Olá, sou o DanielHe4rt e faço lives na Twitch na Segunda, Quarta, Sexta e Sáb
 
 ## contato 
 
-chama no zap 40028922
-chama no e-mail hey@danielhe4rt.dev
-chama no twitter Danielhe4rt  
+aqui está os meios de contato mais fodas do mundo é isso deixa o follow
+
+* chama no zap *40028922*
+* chama no e-mail *hey@danielhe4rt.dev*
+* chama no twitter *danielhe4rt*  
+* chama no linkedonska [clicando aqui](https://linkedin.com/in/danielheart)
